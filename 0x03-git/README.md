@@ -1,0 +1,1 @@
+meaza lemma tesema nekele tesema
